@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Python programming
 - 💞️ I’m looking to collaborate on educational research
 - 📫 Anyone can reach me via @mathislife01 (Instagram) or zefanyaadityasa@gmail.com 
-https://www.instagram.com/mathislife01/
+- https://www.instagram.com/mathislife01/
 
 
 <!---
